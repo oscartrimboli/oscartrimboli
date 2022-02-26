@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @oscartrimboli
-- 👀 I’m interested in learning the basics
+- 👀 I’m interested in learning the basics because I don't know how to code
 - 🌱 I’m currently learning about listening
 - 💞️ I’m looking to collaborate with people who want to get more time back in their schedule
 - 📫 How to reach me Oscar@OscarTrimboli.com
